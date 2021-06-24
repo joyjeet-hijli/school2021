@@ -65,3 +65,4 @@ Nooshineh Fallah Zabihi
   I hope I can participate in similar events in person soon. Thank you all very much! Martin Schneider 
   
  * Fantastic summer school, thanks and all the best! - Kong You Liow
+Really helpful for a week , - Joyjeet Hijli
